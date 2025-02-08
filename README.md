@@ -2,7 +2,7 @@
 ### 🚀 AI | Machine Learning | Deep Learning | NLP 
 🔬 Master’s in AI @ Illinois Institute of Technology  
 💡 Working on Neural Networks!                                                                                                                                               
-🔍 Interested in AI internships & hands-on ML development  
+🔍 Interested in AI/ML internships or Full Time opportunities  
 
 📫 Reach me at: [LinkedIn](https://www.linkedin.com/in/sanjanarayarala) | [Email](mailto:sanju.rayarala@gmail.com)
 
